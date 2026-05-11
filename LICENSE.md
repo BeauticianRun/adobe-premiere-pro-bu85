@@ -1,4 +1,4 @@
-# 
+# Adobe Premiere Pro for macOS custom Transition: keyframe-animation & slow-motion is the best Adobe Premiere Pro for macOS transition, featuring keyframe-animation and slow-motion.
 
 
 
